@@ -1,0 +1,1 @@
+# HP_AL_reszponziv
